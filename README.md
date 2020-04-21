@@ -1,2 +1,2 @@
 # Are-You-Fast-Enough
- 
+ If you think you are fast enough. Why don't you come out of your boring place and give my new game a try? Still, waiting ...
